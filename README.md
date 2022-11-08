@@ -1,7 +1,5 @@
 # こんにちは
 
-URLの末尾に  
-/  
-ks@sm  
-.html  
-を加えてください
+次は  
+jyy@d]__,slr^gim^gtormf/hoyjin/op_trsf/jy,;  
+です
